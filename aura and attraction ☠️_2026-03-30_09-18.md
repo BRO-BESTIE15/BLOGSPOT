@@ -1,0 +1,166 @@
+**Charm Built Legends. Lust Built Clicks.**
+
+
+
+I’m writing this because I belong to a generation that’s often called fast, energetic, and overly adaptive.  
+But sometimes, I feel what boomers think about us is not always true — like, really.
+
+I’m lowkey an old-song lover.  
+I mostly listen to MJ songs 😆
+
+So yeah, this is my personal review based on a real-life incident that made me feel the line:
+
+**Charm Built Legends. Lust Built Clicks.**
+
+⚠️ Disclaimer  
+This post includes criticism of **Sabrina Carpenter’s** work.  
+If you’re a die-hard fan who can’t tolerate criticism,  
+this post isn’t for you. Please exit now.  
+
+If you choose to continue, please read the post completely,  
+understand the context and my state of mind,  
+and only then comment.
+
+
+
+
+
+
+
+“Charm Built Legends. Lust Built Clicks.” 
+is good, so we go for explaining it with a hook of my real experience.
+
+I tapped on the play button to play *Heal the World*, and a Spotify ad popped up in full screen of Sabrina Carpenter’s *Espresso* in the mashup of 2024–25 big English hits. The visuals were like a lil explicit for a second.
+
+I got shocked — not because I’m very sensitive about this content, but because I was in a completely different mood and trying to play *Heal the World* just after *Man in the Mirror*. When that ad showed up, I felt very weird, and my hand just went to the home button and I closed Spotify.
+
+That was also my shift toward YouTube Music instead of Spotify, because YouTube’s personalized algorithm is very good. It doesn’t show me random Sabrina Carpenter ads.
+
+I’m not saying Sabrina Carpenter is bad or that I hate her. She has a very good, god-gifted voice. But her MV was not good, especially that one.
+
+If you think I’m overreacting, broooo, just think about this: a **16-year-old boy**, in a peaceful mood, playing *Man in the Mirror*, *Heal the World*, *Human Nature*, *Cry* back to back, and suddenly getting an ad of that kind of MV. I was shocked.
+
+So please don’t say I didn’t like those things because I'm kiddo. I’m normal with those visuals, but not every time, not in that mood.
+
+I didn’t listen to the lyrics or what they were saying, but I’m saying that because of that moment, I never listened to any songs by Sabrina Carpenter.
+
+This isn’t about gender. Male artists do this too. But I'm a guy and I don't get that shock from male artist being bold 💀 even i sometimes says that that artist have a muscular body ☠️. For example Dan Reynolds (Imagine Dragons). 
+ It’s not mentality, it’s biology.
+
+If anybody says my music taste is bad, so yeahhh — in my playlist there is a **“Bad”** song by Michael Joseph Jackson,  
+
+I mostly listen to Michael Jackson, The Jacksons, and Imagine Dragons. I also know about other artists like Bruno Mars, Lady Gaga, The Weeknd, Ed Sheeran. They are writing legacy right now, and their vocals are good. Their MVs use bold images, but not for sexualizing things — they show supremacy or vulnerability.
+
+But she was not doing that. Her main thing is not vocals; it’s body showing. I’m sorry if anybody got hurt, but I’m just judging her specific **Espresso** song.
+
+Yeah, her MVs have that storytelling vibe adopted from *Thriller*, and not only her — everyone does it. But the thing is, I’m a fan of simplicity: moves, not legs (・o・).
+
+So I apologize. Maybe I’m right or wrong, or maybe I’m not the main audience for her. But I’m a fan of MJ, and yes,  I’m completely confident saying that — in front of my soul.
+
+Signing off with this:
+
+If anything I overreacted to, just blame it on the boogie, beat it and be bad.
+
+FBYS 💀 
+
+
+
+
+
+
+
+
+
+**Charm Built Legends. Lust Built Clicks.**
+
+This thought came from one strange moment.
+
+I was in a calm, peaceful mood.
+Headphones on.
+MJ playing.
+
+*Man in the Mirror*.
+Then *Heal the World*.
+
+I tapped play — and suddenly a full-screen Spotify ad appeared.
+A 2024–25 English hits mashup.
+Sabrina Carpenter’s *Espresso*.
+Body-heavy visuals.
+Energy completely opposite to my state of mind.
+
+I froze for a second.
+Not because I’m sensitive.
+But because the mood was shattered.
+
+My hand instinctively hit the home button.
+Spotify closed.
+
+That moment also explains why I slowly moved toward YouTube Music.
+Its algorithm usually respects the listener’s vibe.
+It doesn’t randomly throw unrelated visuals into emotional spaces.
+
+This is not hate.
+I’m not saying the artist is bad.
+She has a god-gifted voice.
+
+I’m judging **one MV — Espresso**.
+
+Imagine this:
+A **16-year-old boy**, straight, peaceful,
+listening to *Man in the Mirror*, *Heal the World*, *Human Nature*, *Cry* back to back,
+and suddenly a body-first MV pops up as an ad.
+
+That shock isn’t hatred.
+It isn’t insecurity.
+It’s **biology**.
+
+This isn’t about gender.
+I’m not a misogynist or sexist.
+Male artists do this too.
+
+But biologically, it hits differently.
+A shirtless male performer reads as fitness.
+Female body-focused visuals trigger a different response.
+That’s nature, not mentality.
+
+And yeah — quick irony check:
+If anyone says my music taste is bad,
+I literally have a song called **“Bad”** by Michael Joseph Jackson
+in my playlist.
+
+That’s the joke.
+
+I mostly live in MJ’s world —
+Michael Jackson,
+The Jacksons,
+Imagine Dragons.
+
+I respect modern artists too:
+Bruno Mars,
+Lady Gaga,
+The Weeknd,
+Ed Sheeran.
+
+They use bold visuals,
+but never replace vocals or performance with skin.
+
+That’s where *Espresso* lost me.
+
+I’m not the target audience.
+And that’s okay.
+
+Legends were built on charm,
+movement,
+discipline,
+and emotion.
+
+Lust builds clicks.
+Charm builds legacy.
+
+If this sounds like overreaction,
+blame it on the boogie.
+
+And if it hurts —
+beat it.
+
+FBYS 💀
